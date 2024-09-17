@@ -1,5 +1,7 @@
 ### Привет 👋
 
+Это аккаунт для всякого разного, что я делаю в процессе обучения в МИРЭА
+
 <!--
 **myschproj/myschproj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
