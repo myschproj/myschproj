@@ -1,10 +1,10 @@
 ### ya ebnutij begite
 
-alo ☎️ 
-a? 🗣️ 
-eto pakistan? 🇵🇰 
-da 👍 
-nam 👨‍👨‍👦‍👦 nuzhen 🛐 odin ☝️ kilogram 🍿 
+alo ☎️ <br>
+a? 🗣️ <br>
+eto pakistan? 🇵🇰 <br>
+da 👍 <br>
+nam 👨‍👨‍👦‍👦 nuzhen 🛐 odin ☝️ kilogram 🍿 <br>
 budet 👌
 
 <!--
