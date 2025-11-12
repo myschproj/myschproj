@@ -1,5 +1,3 @@
-### pakosti incorporated
-
 alo ☎️ <br>
 a? 🗣️ <br>
 eto pakistan? 🇵🇰 <br>
